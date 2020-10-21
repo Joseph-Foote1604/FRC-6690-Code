@@ -1,7 +1,3 @@
 # FRC-6690-Code
+//Team 6690, MV Robo Pride
 
-
-Hi
-Team 6690, MV Robo Pride
-ROBOT CODE  
-herauilzktfberuiolajsdhztrfnrtjsdxdt,mfgr
