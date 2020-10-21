@@ -2,8 +2,4 @@
 
 
 Hi
-joe
-why 
-are 
-you
-joe
+Team 6690, MV Robo Pride
