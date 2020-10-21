@@ -3,4 +3,5 @@
 
 Hi
 Team 6690, MV Robo Pride
-ROBOT CODE 
+ROBOT CODE  
+herauilzktfberuiolajsdhztrfnrtjsdxdt,mfgr
